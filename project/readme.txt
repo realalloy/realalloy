@@ -29,3 +29,8 @@ shuttle — your bus
 Adair — right promise
 11/03/2025
 Rahul Gandhi 
+
+"Mombo" may refer to a plant in the Congo or a dance and music style from Cuba. 
+real lady 
+Katrina Kaif 
+11/03
