@@ -1,4 +1,4 @@
-INB - Indian National Bank 🏧
+INB - Indian National Bank 🏧 👍
 swastik software || 8/3/2025
 
 Shadow - Apna Instagram and Facebook
@@ -18,7 +18,8 @@ naukri mil jayega
 || 9/3/2025
 
 national archive 
-green 🍏 India 
+
+green 🍏 India 👍
 || 10/3/2025
 
 shuttle
