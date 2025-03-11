@@ -11,6 +11,8 @@ electronic india
 Fuel, Incorporated - you're ignition or address of fuel 
 || 9/3/2025
 
+software — gallon
+
 tera jaha - ek wafa tera, ek mera
 naukri mil jayega 
 || 9/3/2025
