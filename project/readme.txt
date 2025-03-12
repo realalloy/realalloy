@@ -41,3 +41,5 @@ karahi
 Gread — a work
 12/03/2025
 angel investor 
+
+In the context of biblical texts (specifically the Book of Proverbs), "Agur" refers to one of the contributors to the sayings and proverbs, and his name may be translated as "hireling" or "collector", but in general use "Agur" can mean "hello" or "goodbye".
