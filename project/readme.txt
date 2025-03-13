@@ -49,3 +49,10 @@ green 💚 business
 
 Pearl Lab
 only human diagnosis 
+
+Rx needs a doctor 
+
+codeback
+coding competition
+entry fee for one 2500/-
+for two 3000/-
