@@ -56,3 +56,10 @@ codeback
 coding competition
 entry fee for one 2500/-
 for two 3000/-
+
+heta international 
+huma , doctor and patient 
+
+18 years 
+people 
+gup shup ki jagah and restaurant 
