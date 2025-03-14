@@ -63,3 +63,7 @@ huma , doctor and patient
 18 years 
 people 
 gup shup ki jagah and restaurant 
+
+OpenPlay - khel kud competition 
+
+nari
