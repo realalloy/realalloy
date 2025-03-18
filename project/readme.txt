@@ -93,3 +93,9 @@ Jacqueline Fernandes
 flopper
 win win
 question answer tv show 
+
+mirdang
+show on tv
+
+mobile store.com
+to sell mobile 
