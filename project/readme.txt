@@ -60,7 +60,7 @@ for two 3000/-
 heta international 
 huma , doctor and patient 
 
-18 years 
+18 years 22/03 👍 salman khan 
 people 
 gup shup ki jagah and restaurant 
 
