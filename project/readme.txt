@@ -46,6 +46,10 @@ newyork — $
 • one company given 
 • GitHub funded 
 22/03/2025
+
+132 companies funded 
+31/03/2025
+
 °•
 In the context of biblical texts (specifically the Book of Proverbs), "Agur" refers to one of the contributors to the sayings and proverbs, and his name may be translated as "hireling" or "collector", but in general use "Agur" can mean "hello" or "goodbye".
 
